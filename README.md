@@ -1,5 +1,5 @@
 ### Olá 👋
-Sou Gay e dou a bunda, seja bem vindo ao meu perfil
+Sou Gustavo e estudo na escola Paulo virginio 
 <!--
 **Gustavoravick/Gustavoravick** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
